@@ -15,5 +15,4 @@ Features
 You can also test it absolutely free and see for yourself
 
 Sales are limited, write me now
-Price: 650$
 Telegram: @Tonyfill
